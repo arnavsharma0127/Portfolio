@@ -4,8 +4,7 @@ Hello, everyone I'm Arnav Sharma.
 
                           💭 I am aspiring and hard- working individual with inclusive skills.
 
-                                
-     💭   Enthusiastic and curious to learn new skills and technologies.
+        💭   Enthusiastic and curious to learn new skills and technologies.
            
                      💭 Adept in solving complex issues and troubleshooting with a highly analytical and logical mindset.
                                
